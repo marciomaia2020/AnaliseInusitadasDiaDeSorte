@@ -1,0 +1,1 @@
+# AnaliseInusitadasDiaDeSorte-
